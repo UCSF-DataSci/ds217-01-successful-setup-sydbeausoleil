@@ -19,9 +19,9 @@ learning python! It opens up a whole world of possibilities. I feel like I'll ge
 ## 4. Share something you enjoy!
 [Drop a link to something you really enjoy - could be a website, article, video, project, hobby, book, podcast, or anything else you're into]
 
-****My whole family is from Haiti and moving to the West coast has felt a bit lonely since the haitian population is so small here.
-There is only one AUTHENTIC (kinda) Haitian restaurant in the Bay Area and I got there any time I miss home.
-https://www.tchakaoak.online ****
+My whole family is from Haiti and moving to the West coast has felt a bit lonely since the haitian population is so small here.
+There is only one AUTHENTIC (kinda) Haitian restaurant in the Bay Area and I go there any time I miss home.
+https://www.tchakaoak.online 
 ---
 
 *Thank you for sharing! Your responses help me get to know you and hopefully make the course better!*
